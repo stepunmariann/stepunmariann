@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @stepunmariann
+- 👀 I’m interested in (SOON)
+- 🌱 I’m currently learning (SOON)
+- 💞️ I’m looking to collaborate on (SOON)
+- 📫 How to reach me (SOON)
+- 😄 Pronouns: (SOON)
+- ⚡ Fun fact: (SOON)
